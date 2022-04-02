@@ -3,10 +3,10 @@
 </h3>
 
 ***
-### Alguns coisinhas sobre mim 😊
-- Sou formada em Direito, sempre fui fascinanda em poder fazer pelo outro, por esse motivo escolhi minha profissão.
+### Algumas coisinhas sobre mim 😊
+- Sou formada em Direito, sempre fui fascinada em poder fazer pelo outro, por esse motivo escolhi minha profissão.
 - Atualmente estou em transição de carreira para aréa da computação. Tenho me apaixonado cada vez mais.
-- Tenho sonho de ser reconhecida profissionalmente
+- Tenho sonho de ser reconhecida profissionalmente,
 - Quero construir uma família 
 ***
 
